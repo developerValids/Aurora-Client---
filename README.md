@@ -1,2 +1,2 @@
-# Aurora-Client---
+# Aurora-Client
 Aurora Client - Лучший чит
